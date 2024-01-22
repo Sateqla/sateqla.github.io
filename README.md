@@ -1,1 +1,0 @@
-# sateqla.github.io
